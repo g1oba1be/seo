@@ -1,1 +1,1 @@
-Top 8 AI SEO Tools in 2024 Revolutionizing Search Engine Optimization
+[Top 8 AI SEO Tools in 2024 Revolutionizing Search Engine Optimization](https://github.com/g1oba1be/seo/blob/main/Top%208%20AI%20SEO%20Tools%20in%202024%20Revolutionizing%20Search%20Engine%20Optimization.md)
